@@ -1,3 +1,3 @@
-# :joystick: Get Gaming
+# :joystick: 🕹 Get Gaming
 
 **Soon™**
