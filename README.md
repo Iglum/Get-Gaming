@@ -1,2 +1,3 @@
-# getgaming
-student website 
+# :joystick: Get Gaming
+
+**Soon™**
